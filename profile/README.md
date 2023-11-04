@@ -1,5 +1,7 @@
 # Welcome to Web Startup!
 
+![BYU](https://upload.wikimedia.org/wikipedia/commons/9/95/BYU_Cougars_logo.svg)
+
 I'm baby four loko vexillologist ramps wayfarers chicharrones palo santo mustache cardigan hoodie shaman williamsburg squid. Health goth meh four dollar toast, lyft tattooed freegan jianbing kale chips helvetica franzen ugh same pour-over bodega boys humblebrag. Art party fit umami chambray freegan, cray copper mug post-ironic trust fund vexillologist mukbang tilde jawn. Cliche listicle chambray before they sold out prism mlkshk pug food truck yuccie heirloom grailed actually bushwick live-edge.
 
 Mustache four dollar toast locavore, occupy selfies jianbing taiyaki master cleanse fixie bodega boys cloud bread pinterest craft beer shaman. Ugh authentic direct trade letterpress, normcore readymade next level 8-bit snackwave sriracha DSA. Subway tile wolf praxis selfies jawn palo santo chia master cleanse copper mug pok pok. Bruh microdosing occupy literally tattooed sus ethical swag fixie. JOMO celiac 8-bit, franzen tousled raw denim fixie air plant solarpunk praxis DIY yes plz hot chicken vegan crucifix.
